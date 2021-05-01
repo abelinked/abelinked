@@ -1,0 +1,5 @@
+- I am @AbeLinked
+- I am a programmers civil rights hactivist
+- My goal is to open source as many close sourced programs as possible
+- I firmly believe that making code and technology alike slows down innovation and our journey into a better future.
+- How to reach me ... abelinked@protonmail.com
